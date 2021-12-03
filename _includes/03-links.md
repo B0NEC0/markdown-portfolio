@@ -1,0 +1,1 @@
+[text](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwjiub_Hhcj0AhW3ppUCHSVLDuYQFnoECAwQAQ&url=https%3A%2F%2Fwww.clickjogos.com.br%2F&usg=AOvVaw0by3TBeT05rrDJZIGV0uf-)
