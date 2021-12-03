@@ -1,3 +1,3 @@
-*batata
-*cenoura
-*beterraba
+* batata
+* cenoura
+* beterraba
